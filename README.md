@@ -1,1 +1,1 @@
-![I'm XiaoZhi👋 I'm a 🚀 Python Recommendation developer 🚀 I ❤️ Happy Hardcore ❤️](https://github.com/matyo91/matyo91/raw/master/assets/github.gif)
+![](https://github.com/swallown1/swallown1/blob/master/asset/dino.gif)
